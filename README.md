@@ -1,1 +1,0 @@
-# manatoblog.github.io
